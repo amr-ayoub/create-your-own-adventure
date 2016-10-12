@@ -1,1 +1,0 @@
-You cool your jets by taking a refreshing drink of your favorite soda.
